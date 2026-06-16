@@ -29,13 +29,19 @@
 # About me
 <img width="1199" height="868" alt="HEi4RHjawAAhMIK" src="https://github.com/user-attachments/assets/c97d8f86-1cf8-4196-888e-8e393f7e4847" />
 - I go with the nick: Yad
+ 
 - Usually offtab might be slow to respond
+
 - I'm not really talkative, awkward even
+  
 - My MBTI if you wanna stalk me (Warn me if there is something wrong w it)  : INFJ IEI 621 so/sx Neutral Good Melancholic / Phlegmatic
+  
 - If you see my characters anywhere other than the safe server, please let me know!
+  
 - Other games I play:
   Genshin Impact(honestly getting bored of it but staying for Wanderer)
   Minecraft
   Uh.. Yeah I don't play a lot of games
+
 - (YUMESHIP/OCXCANON WARNING) I have a REAAALLLY big OC lore for Wanderer, I'm interested in sharing it, and will share the link when I'm done with it. Stay tuned. But other than ocxcanon, I have my own universe too!
   
