@@ -1,3 +1,8 @@
+<img width="7676" height="4208" alt="1393543" src="https://github.com/user-attachments/assets/f281a1e2-47db-4e2e-bee6-d70c7e32fe54" />
+
+
+
+
 # Characters:
 
 ***FOR INSPO ONLY!!***
@@ -44,4 +49,9 @@
   Uh.. Yeah I don't play a lot of games
 
 - (YUMESHIP/OCXCANON WARNING) I have a REAAALLLY big OC lore for Wanderer, I'm interested in sharing it, and will share the link when I'm done with it. Stay tuned. But other than ocxcanon, I have my own universe too!
+
+
+  DNI: Scaralumi, Kazuscara, Scaramona, scara ships etc. Lore skippers, proshippers
+
   
+  I'm not really a shipper, if I ship, I usually go with these steps: 1 Have they ever met? 2 Do they fit Logically? 3 Do they fit emotionally?  I'm very selective when it comes to shipping, so if you really like shipping, don't talk to me. It's not that I don't like you, but maybe you won't like me 💔
