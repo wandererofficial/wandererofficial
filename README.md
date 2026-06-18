@@ -6,6 +6,7 @@
 # Characters:
 
 ***FOR INSPO ONLY!!***
+(Inspo is free but don't fully copy the ideas!)
 
 
 
