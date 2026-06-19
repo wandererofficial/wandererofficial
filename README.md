@@ -22,6 +22,7 @@
 <img width="240" height="365" alt="pony-town-kanade-stand-name-bg-padded-toy111-5x" src="https://github.com/user-attachments/assets/e3147bec-22ed-4e14-98cb-94239864e1ed" />
 <img width="230" height="380" alt="pony-town-Wanderer-stand-name-bg-padded-5x" src="https://github.com/user-attachments/assets/9d975a64-0c22-4ad4-bf2d-1ec26f3ce90f" />
 <img width="235" height="380" alt="pony-town-Wanderer-stand-name-bg-padded-5x (1)" src="https://github.com/user-attachments/assets/ebd2743a-3fab-43b4-8183-b2b42e1a0d79" />
+<img width="250" height="380" alt="pony-town-Scaramouche-stand-name-bg-padded-5x (1)" src="https://github.com/user-attachments/assets/92fd53d4-1a2c-49cf-bb2a-2202b62c8c56" />
 <img width="250" height="380" alt="pony-town-Scaramouche-stand-name-bg-padded-5x" src="https://github.com/user-attachments/assets/be2af613-2dab-4ce8-ad4d-eea355b54baf" />
 <img width="245" height="380" alt="pony-town-wuh luh-stand-name-bg-padded-5x" src="https://github.com/user-attachments/assets/904b16fa-8ffe-4035-93a4-60e35e4bb4ae" />
 <img width="240" height="380" alt="pony-town-sucrose-stand-name-bg-padded-5x" src="https://github.com/user-attachments/assets/4f914823-c8fc-4494-83fa-a63c9d23d64b" />
