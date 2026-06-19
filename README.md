@@ -1,9 +1,22 @@
+
+ㅤㅤㅤ　 　　*　ㅤㅤㅤㅤㅤ ˚　　　　✦　　　.　　. 　 ˚　 𝚈𝚞𝚖𝚎 𝚙𝚘𝚗𝚒𝚎𝚜 ^_^   . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 　　　.   　　˚　　 　　*　
+<p align="center">
+<img width="280" height="350" alt="pony-town-meo-kiss-name-bg-padded-5x" src="https://github.com/user-attachments/assets/691e616b-268c-45ed-a6c1-3516b8a34685" />      <img width="275" height="360" alt="pony-town-moe-kiss-lift-hoof-name-bg-padded-5x" src="https://github.com/user-attachments/assets/3620d108-93e4-4dc2-b6b2-ad255b50e5cb" />
+</p>
+
+
+
+<p align="center">
+  <a href="https://wandererofficial.atabook.org/"><i>新book</i></a>
+</p>
+
 <img width="7676" height="4208" alt="1393543" src="https://github.com/user-attachments/assets/f281a1e2-47db-4e2e-bee6-d70c7e32fe54" />
 
 
 
 #
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312h4ah5x7msfnrwbt5lfdkxaykq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=4e54b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312h4ah5x7msfnrwbt5lfdkxaykq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=4e54b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile) 
+
 
 
 
