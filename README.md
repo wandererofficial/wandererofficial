@@ -2,6 +2,10 @@
 
 
 
+#
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312h4ah5x7msfnrwbt5lfdkxaykq&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=4e54b1&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
+
+
 
 # Characters:
 
@@ -54,8 +58,11 @@
 
 - (YUMESHIP/OCXCANON WARNING) I have a REAAALLLY big OC lore for Wanderer, I'm interested in sharing it, and will share the link when I'm done with it. Stay tuned. But other than ocxcanon, I have my own universe too!
 
-
-  DNI: Scaralumi, Kazuscara, Scaramona, scara ships etc. Lore skippers, proshippers
+<details>
+  <summary>DNI</summary>
+  <br>
+  Scaralumi, Kazuscara, Scaramona, scara ships etc. Lore skippers, proshippers, https://basic-dni.crd.co/
+</details>
 
   
   I'm not really a shipper, if I ship, I usually go with these steps: 1 Have they ever met? 2 Do they fit Logically? 3 Do they fit emotionally?  I'm very selective when it comes to shipping, so if you really like shipping, don't talk to me. It's not that I don't like you, but maybe you won't like me 💔
