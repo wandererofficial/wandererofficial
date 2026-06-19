@@ -19,7 +19,7 @@
 <img width="230" height="415" alt="pony-town-Yad-stand-name-bg-padded-toy40-5x (1)" src="https://github.com/user-attachments/assets/a3b76e80-1854-43f4-884c-5d33d010117c" />
 <img width="230" height="415" alt="pony-town-Yad-stand-name-bg-padded-toy40-5x" src="https://github.com/user-attachments/assets/b167c78f-1e53-4e23-a64f-32a8f2b8bd9b" />
 <img width="230" height="390" alt="pony-town-Yad-stand-name-bg-padded-toy195-5x" src="https://github.com/user-attachments/assets/2b793ce5-c97e-4d35-a55f-389764c00443" />
-<img width="255" height="415" alt="pony-town-Durin-stand-name-bg-padded-toy289-5x" src="https://github.com/user-attachments/assets/a934b94f-147c-4956-b88e-bbbb87d15569" />
+<img width="315" height="415" alt="pony-town-Durin-stand-name-bg-padded-toy289-5x (1)" src="https://github.com/user-attachments/assets/23419a5d-7519-46e3-b6a2-75ebd7a7417c" />
 <img width="250" height="365" alt="pony-town-Yuan-stand-name-bg-padded-toy1-5x" src="https://github.com/user-attachments/assets/bf368af5-eea2-456f-8443-76305211cd36" />
 <img width="225" height="385" alt="pony-town-Ao-stand-name-bg-padded-toy10-5x" src="https://github.com/user-attachments/assets/17397a76-ded1-4a1c-9b1e-12e48ba637b8" />
 <img width="240" height="355" alt="pony-town-dazai-stand-name-bg-padded-5x" src="https://github.com/user-attachments/assets/e64cc2c5-41eb-47b8-8ec7-d53aff45d427" />
