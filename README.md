@@ -43,7 +43,7 @@
 
 - I'm not really talkative, awkward even
   
-- My MBTI if you wanna stalk me (Warn me if there is something wrong w it)  : INFJ IEI 621 so/sx Neutral Good Melancholic / Phlegmatic
+- My MBTI if you wanna stalk me (Warn me if there is something wrong w it)  : INFJ so/sx621 IEI LEVF Neutral Good Melancholic / Phlegmatic
   
 - If you see my characters anywhere other than the safe server, please let me know!
   
