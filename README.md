@@ -22,8 +22,8 @@
 </p>
 
 
-
-
+#
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=1000&pause=1000&color=D4F718&width=528&lines=No..;No+no+no+no..;NO+NO+NO+NO+NO+NO!!!!!!;I+THOUGHT+WE+WERE+HAVING+A+NICE+WALK!!;I+THOUGHT+WE+WERE+HAVING+A+NICE+WALK!!;WEREN'T+WE+WERE+HAVING+A+NICE+WALK%3F!)](https://git.io/typing-svg)
 
 
 # About me
