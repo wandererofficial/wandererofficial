@@ -1,7 +1,7 @@
 
 <p align="center">
   <a href="https://wandererofficial.atabook.org/"><i>新book</i></a>  . 
-  <a href="https://[wandererofficial.atabook.org](https://guns.lol/wandererofficial)/"><i>guns.lol</i></a>
+  <a href="https://[https://guns.lol/wandererofficial]/"><i>guns.lol</i></a>
 </p>
 </p>
 
