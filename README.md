@@ -1,9 +1,13 @@
 
 <p align="center">
-  <a href="https://wandererofficial.atabook.org/"><i>新book</i></a>
+  <a href="https://wandererofficial.atabook.org/"><i>新book</i></a>  . 
+  <a href="https://[wandererofficial.atabook.org](https://guns.lol/wandererofficial)/"><i>guns.lol</i></a>
+</p>
 </p>
 
 <img width="7676" height="4208" alt="1393543" src="https://github.com/user-attachments/assets/f281a1e2-47db-4e2e-bee6-d70c7e32fe54" />
+
+
 
 
 
